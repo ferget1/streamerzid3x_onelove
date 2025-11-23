@@ -18,4 +18,7 @@ i love zidex's rap and of course his diss to mralex
   😎 - я, когда получил 0,5 балла из 10 по КР
 
   [arseniy](https://www.youtube.com/channel/UC4TvuMr8qZJ_F1SKpsuVSng)
-  [religion](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reddit.com%2Fr%2FProgrammerHumor%2Fcomments%2Fu20jta%2Fguys_im_getting_a_runtime_error_how_can_i_fix_it%2F&psig=AOvVaw14UNwNgKRyVNA2KixGkY1H&ust=1763555915223000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCKizu-zb-5ADFQAAAAAdAAAAABAE
+  [religion](https://memexpert.net/static/arabian-programmer-c++.jpg)
+  [meme2](https://memexpert.net/static/cat-on-chair-cpp.jpg)
+  [meme3](https://img2.safereactor.cc/pics/post/full/it-%D1%8E%D0%BC%D0%BE%D1%80-geek-%D1%8F%D0%B7%D1%8B%D0%BA%D0%B8-%D0%BF%D1%80%D0%BE%D0%B3%D1%80%D0%B0%D0%BC%D0%BC%D0%B8%D1%80%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F-8140617.jpeg)
+  [meme4sorryforswearings](https://habrastorage.org/webt/61/bc/09/61bc090d215ff503520186.jpeg)
